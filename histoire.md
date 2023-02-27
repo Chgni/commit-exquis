@@ -5,3 +5,4 @@ j'ai rencontré un bébé chat trop cute
 , j'ai donc decidé de le ramener chez moi.
 Il y aura donc un troiseme habitant dans la maison, 
 notre chien. C'etait un magnifique chien de race
+totalement inconnnue. Il se mit tout d'un coup à regarder 
