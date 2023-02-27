@@ -6,3 +6,5 @@ j'ai rencontré un bébé chat trop cute
 Il y aura donc un troiseme habitant dans la maison, 
 notre chien. C'etait un magnifique chien de race
 totalement inconnnue. Il se mit tout d'un coup à regarder 
+un zèbre sortant tout droit de son bureau après s'être roulé au sol
+alors il se fit viré car il était 
