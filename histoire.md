@@ -10,3 +10,4 @@ un zèbre sortant tout droit de son bureau après s'être roulé au sol
 alors il se fit viré car il était 
 beaucoup trop rayé pour un zèbre.
 Il décida alors de devenir
+Un gros pinguin rose
